@@ -140,9 +140,8 @@ Congrats on the anniversary!  Hope you're doing well.
 Congrats on the anniversary!  Hope you're doing well.
 
 Congrats on the anniversary!  Hope you're doing well.
-Clint Ecker sent the following messages at 6:55 PM
 
-#### View Clint’s profile
+#### Clint Ecker sent the following messages at 6:55 PM
 
 👍
 
@@ -290,7 +289,6 @@ Good morning
 #### Robert Tolar Haining sent the following message at 10:25 PM
 
 Have a nice day
-Today
 
 ### Today
 #### Clint Ecker sent the following message at 12:37 PM
